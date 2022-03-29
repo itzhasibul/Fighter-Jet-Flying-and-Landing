@@ -8,11 +8,19 @@
 
 
 
+Plain fly  on  "left click & hold
 
 
 
 
 
+
+
+
+
+
+
+Plain land when left click releas
 
 
 
