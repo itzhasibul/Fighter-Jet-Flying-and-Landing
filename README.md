@@ -8,7 +8,7 @@
 
 
 
-Plain fly  on  "left click & hold
+Plain fly  on  "left click & hold"
 
 
 
